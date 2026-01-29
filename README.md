@@ -76,5 +76,3 @@ If you have any questions about this Privacy Policy or your personal data, you c
 ---
 
 
-
-Kya main Urdu version bhi bana doon?
